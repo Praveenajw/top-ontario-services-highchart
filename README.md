@@ -2,6 +2,10 @@
 
 
 
-https://user-images.githubusercontent.com/82393502/215958083-13658436-d966-4d22-8ac2-22a5c72faea3.mp4
 
-https://medium.com/featurepreneur/top-15-ontario-it-services-companies-2021-42bf972c8655
+https://user-images.githubusercontent.com/82393502/215958686-42ac6aeb-85d0-425c-9c99-9581c3277716.mp4
+
+
+
+
+Publication -> https://medium.com/featurepreneur/top-15-ontario-it-services-companies-2021-42bf972c8655
